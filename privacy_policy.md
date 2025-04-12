@@ -1,5 +1,5 @@
 Privacy Policy 
-This Privacy Policy is prepared by LinkPods and whose registered address is LinkPods (“We”) are committed to protecting and preserving the privacy of our visitors when visiting our site or communicating electronically with us.
+This Privacy Policy is prepared by Steady Hitting and whose registered address is Steady Hitting (“We”) are committed to protecting and preserving the privacy of our visitors when visiting our site or communicating electronically with us.
 This policy sets out how we process any personal data we collect from you or that you provide to us through our website and social media sites. We confirm that we will keep your information secure and comply fully with all applicable United States Data Protection legislation and regulations. Please read the following carefully to understand what happens to personal data that you choose to provide to us, or that we collect from you when you visit our sites. By submitting information you are accepting and consenting to the practices described in this policy.
 Types of information we may collect from you
 We may collect, store and use the following kinds of personal information about individuals who visit and use our website and social media sites:
@@ -19,5 +19,5 @@ You have the right to ensure that your personal data is being processed lawfully
 Changes to our privacy policy
 Any changes we may make to our privacy policy in the future will be posted on this page and, where appropriate, notified to you by e-mail. Please check back frequently to see any updates or changes to our privacy policy.
 Contact
-Questions, comments, and requests regarding this privacy policy are welcomed and should be addressed to phylipitimorthy@gmail.com.
+Questions, comments, and requests regarding this privacy policy are welcomed and should be addressed to bilalarshad941@gmail.com.
 
